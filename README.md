@@ -49,7 +49,7 @@ Welcome to my GitHub profile—a place where highways, high voltage, and high co
 
 ## 🎮 When I’m Not Coding...
 
-You’ll find me gaming, diving into VR worlds, or enjoying the freedom of the road. Life’s about exploring—whether it’s across states, frequencies, or new frontiers in tech.
+You’ll find me reading paleo hebrew scriptures, gaming, diving into VR worlds, or enjoying the freedom of the road. Life’s about exploring—whether it’s across states, frequencies, or new frontiers in tech.
 
 ---
 
